@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao meu perfil do Samuel Martins 😁
+## Bem-vindo(a) ao meu perfil Samuel Martins 😁
 
  <div>
    <a href="https://https://github.com/Samuel-mrtns">
